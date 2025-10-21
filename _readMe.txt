@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 Frederick William Todd, 1805-1896
 "Frederick William Todd scrapbook, 1840-1850"
 Sold by Antiquates Fine & Rare Books (Dorset, United Kingdom), 2018
